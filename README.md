@@ -1,2 +1,2 @@
 # dynya_turkmenleri
-History of Turkmens culture 
+History and culture of TurkMens 
